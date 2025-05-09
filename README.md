@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SandyMulcahy
+- 👀 I’m interested in Tech
+- 🌱 I’m currently studying Computer Science at Oriel College, Oxford
+- 📫 Reach my at alexandermulcahy2005@gmail.com
