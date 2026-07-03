@@ -2,4 +2,4 @@
 - 👀 I’m interested in Tech
 - 🌱 I’m currently studying Computer Science at Oriel College, Oxford
 - 📫 Reach me at alexandermulcahy2005@gmail.com
-- 🌐 Or find more about me on [alexandermulcahy.xyz](alexandermulcahy.xyz)
+- 🌐 Or find more about me on [alexandermulcahy.xyz](www.alexandermulcahy.xyz)
